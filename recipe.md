@@ -1,0 +1,1 @@
+take one glass of water squeeze one leomon into it add sugar salt and ice cubes as per taste mix and its ready.
